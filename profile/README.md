@@ -1,4 +1,4 @@
-![](https://usenotioncms.com/proxy/block/6c6a1595-bace-491e-b67b-4f277617bc97%2F59824b23-8b44-40bf-93dc-a253e553e2b2%2Fcoverpic.jpeg)
+![](https://usenotioncms.com/proxy/block/6c6a1595-bace-491e-b67b-4f277617bc97%2F59824b23-8b44-40bf-93dc-a253e553e2b2%2Fcoverpic.jpeg](https://github.com/Anchors-in/.github/blob/main/profile/1686054676672.jpeg)
 
 # MyWays.ai
 
